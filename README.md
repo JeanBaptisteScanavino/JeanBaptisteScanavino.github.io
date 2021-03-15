@@ -1,2 +1,0 @@
-# JeanBaptisteScanavino.github.io
-MyDomain
